@@ -1,1 +1,1 @@
-MauCariApa.com is an onlime media platform that provides users with quick and easy access to find the information they need. With an intuitive interface and advanced search technology, MauCariApa.com helps users navigate the web more effectively.
+MauCariApa.com is an online media platform that provides users with quick and easy access to find the information they need. With an intuitive interface and advanced search technology, MauCariApa.com helps users navigate the web more effectively.
